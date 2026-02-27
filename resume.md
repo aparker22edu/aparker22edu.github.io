@@ -12,11 +12,11 @@ As a reliable and technically versatile IT veteran returning to the workforce, I
 
 ### **EDUCATION**
 
-**Wake Technical Community College** | Raleigh, NC  
-**Associate in Cybersecurity** | Expected Graduation: 2027
+**Wake Technical Community College** \| Raleigh, NC  
+**Associate in Cybersecurity** \| Expected Graduation: 2027
 
-**University of South Carolina Honors College** | Columbia, SC  
-**Chemistry Major** | 1994 – 1996
+**University of South Carolina Honors College** \| Columbia, SC  
+**Chemistry Major** \| 1994 – 1996
 
 ---
 

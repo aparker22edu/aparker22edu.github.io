@@ -69,17 +69,17 @@ As a reliable and technically versatile IT veteran returning to the workforce, I
 
 **WORK HISTORY**
 
-* **Student (Cybersecurity)** | Wake Technical Community College | 2025 – Present  
-* **Parenting** | 2016 – Present  
-* **Senior Mobile Developer** | Appsolute Genius | 2011 – 2016  
-* **Freelance Developer & Consultant** | Various Clients | 2006 – 2011  
-* **Infrastructure Engineer** | GE Mortgage / Genworth Financial | 2004 – 2006  
-* **Network Consultant** | Sonix | 2003 – 2004  
-* **On-Site Technician** | GeeksOnCall | 2003  
-* **Network Consultant** | NetAssist | 2002  
-* **Developer Support Engineer** | Microsoft | 1999 – 2002  
-* **Technical Support Specialist** | Source Technologies | 1997 – 1999  
-* **Computer Lab Assistant** | University of South Carolina | 1995 – 1996
+* **Student (Cybersecurity)** \| Wake Technical Community College \| 2025 – Present  
+* **Parenting** \| 2016 – Present  
+* **Senior Mobile Developer** \| Appsolute Genius \| 2011 – 2016  
+* **Freelance Developer & Consultant** \| Various Clients \| 2006 – 2011  
+* **Infrastructure Engineer** \| GE Mortgage / Genworth Financial \| 2004 – 2006  
+* **Network Consultant** \| Sonix \| 2003 – 2004  
+* **On-Site Technician** \| GeeksOnCall \| 2003  
+* **Network Consultant** \| NetAssist \| 2002  
+* **Developer Support Engineer** \| Microsoft \| 1999 – 2002  
+* **Technical Support Specialist** \| Source Technologies \| 1997 – 1999  
+* **Computer Lab Assistant** \| University of South Carolina \| 1995 – 1996
 
 
 
